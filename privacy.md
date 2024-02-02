@@ -26,4 +26,4 @@ JeeMate does not share any of your information with third parties.
 
 CONTACT US
 ==============================
-For more information about our privacy practices, if you have any questions, or if you would like to make a complaint, please contact us by e-mail at scalz.my49.jeedom@gmail.com
+For more information about our privacy practices, if you have any questions, or if you would like to make a complaint, please contact us by e-mail at scalz.fr.jeemate@gmail.com
